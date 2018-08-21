@@ -1,1 +1,0 @@
-# beingdpkpr.github.io
